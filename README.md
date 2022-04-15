@@ -1,4 +1,4 @@
-                                                                    🏴‍☠️ Ahoy there! 🏴‍☠️
+                                                      🏴‍☠️ Ahoy there! 🏴‍☠️
 
 I'm Mazin, a Saudi programming student who makes "things". They're not specific "things"... But things nonetheless.
 
